@@ -1,2 +1,0 @@
-# misTrabajos
-ñkljmfñlksdjfs
